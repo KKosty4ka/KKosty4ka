@@ -1,2 +1,2 @@
 ### Hi there 👋
-- My discord: KKosty4ka#4799
+- My discord: @KKosty4ka

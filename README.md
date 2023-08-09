@@ -1,2 +1,2 @@
 ### Hi there 👋
-- My discord: @KKosty4ka
+- My discord: @kkosty4ka. (with the dot)
